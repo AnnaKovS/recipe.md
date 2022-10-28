@@ -19,7 +19,7 @@
 
 
 
-![Трюфели](https://argumentrus.ru/wp-content/uploads/e/0/3/e03bb4cbb77cbc7c98a1f46c45629fb9.jpeg "трюфели")
+![Трюфели](https://i.pinimg.com/originals/79/28/60/79286037bf5d04d4c2ecc469f8ba8e75.jpg "трюфели")
 
 
 
