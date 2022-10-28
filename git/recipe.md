@@ -18,9 +18,5 @@
 
 
 
-
-![Трюфели](https://argumentrus.ru/wp-content/uploads/e/0/3/e03bb4cbb77cbc7c98a1f46c45629fb9.jpeg "трюфели")
-
-
-
+![Трюфели](https://eco-sp.ru/files/974/974116e135c64fffadda1c66136a770b.jpg)
 
